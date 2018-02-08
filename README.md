@@ -8,4 +8,4 @@
    
 ## If you think this is useful
   Please tip some LTC : LWuHMV2tgCmrhUUzuMFHLF62eV7nXTeZeF
-## If you want a customize addon (not for free), PM @Kronus91#1844 on Discord
+## If you want to pay for customized addon, PM @Kronus91#1844 on Discord
